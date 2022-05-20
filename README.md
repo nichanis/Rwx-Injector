@@ -1,4 +1,4 @@
-# To Purchase Full Source add my discord skengdoo#9524
+# To Purchase Full Source add my discord skeng#9524
 - payments -> bitcoin | paypal | cashapp 
 - offer reasonable price for the source 
 
